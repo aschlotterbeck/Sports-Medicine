@@ -24,7 +24,7 @@
 ### Training Room hours for the week of March 31-April 5:
 
 * M: 2 to 4:30pm + (H) Varsity Baseball & Softball games vs Xenia
-* T: 2 to 6pm
+* T: 2 to 4:30pm + (H) JV Softball vs Springfield Shawnee
 * W: 2 to 4:30pm + (H) JV Baseball & Softball games vs Xenia
 * R: 2 to 6pm
 * F: 2 to 4:30pm + (H) JV Baseball game vs Piqua
