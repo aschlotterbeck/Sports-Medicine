@@ -27,8 +27,8 @@
 * T: 2 to 4:30pm + (H) Varsity Baseball vs Xenia & JV Softball vs Springfield Shawnee
 * W: 2 to 4:30pm + (H) JV Baseball vs Xenia
 * R: 2 to 6pm
-* F: 2 to 4:30pm + (H) JV Baseball vs Piqua
-* S: 9:30am (H) MS Track Invitational & (H) Varsity Baseball vs Lebanon
+* F: 2 to 6pm
+* S: 8:30 to 11:30am
 
 **Hours and event coverage details are subject to change**
 
