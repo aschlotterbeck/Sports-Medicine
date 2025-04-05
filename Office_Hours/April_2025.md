@@ -30,5 +30,15 @@
 * F: 2 to 6pm
 * S: 8:30 to 11:30am
 
+### Training Room hours for the week of April 7-12:
+
+* M: 2 to 4:30pm + (H) Varsity Softball & Baseball vs Piqua
+* T: 2 to 4:30pm + (H) JV Baseball vs Piqua
+* W: 2 to 4:30pm + (H) Varsity Softball & Baseball vs West Carrollton
+* R: 2 to 6pm + (H) JV Baseball vs Bethel
+* F: 2 to 4:30pm + (H) JV Baseball vs West Carrollton & JV Softball vs Indian Lake
+* S: On site for (H) MS Track Invite & (H) Varsity Baseball vs Bellefontaine
+
+
 **Hours and event coverage details are subject to change**
 
